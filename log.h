@@ -1,1 +1,1 @@
-qqq fuck you
+fuck you
